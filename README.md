@@ -1,0 +1,5 @@
+- 👋 Selam Dostum Buraya Geldiysen Yönlendirilmiş Olmalısın
+- 👀 eğer Bişi Bulamadıysan Discorda Geri Dön
+- 🌱 Eğer Discorddan Gelmediyse Discordumuza Ulaş
+- 💞️ Discord linkimiz: discord.gg/v4anc75TNR
+- 📫 Youtube Kanalımız: https://www.youtube.com/channel/UCYTrZYe18mWXJv_asu50i5g
